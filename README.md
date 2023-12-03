@@ -1,2 +1,2 @@
 # author_ber6
- finding more from EECS.
+contact Svetlozar T. Rachev
