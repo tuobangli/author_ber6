@@ -1,2 +1,2 @@
 # author_ber6
-contact Svetlozar T. Rachev
+submit matrix dissimilarity 
