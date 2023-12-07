@@ -1,2 +1,2 @@
 # author_ber6
-invited Yu to submit matrix dissimilarity 
+submit matrix dissimilarity by myself
