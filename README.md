@@ -1,2 +1,2 @@
 # author_ber6
-submit matrix dissimilarity by myself
+invite 30 Berkeley professor to submit matrix dissimilarity
