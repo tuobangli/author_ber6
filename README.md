@@ -3,4 +3,4 @@
 
 go to Kuala Lumpur tomorrow.
 
-and then back to my home on Wednesday.
+and then back to my home on Thursday.
