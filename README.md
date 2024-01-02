@@ -1,1 +1,1 @@
-call the police.
+ask the police for help.
