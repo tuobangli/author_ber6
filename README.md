@@ -1,1 +1,1 @@
-Serenti Hotel Saipan
+call the police.
