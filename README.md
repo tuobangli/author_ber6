@@ -1,4 +1,3 @@
-Technion, Guangdong Technion, Berkeley, University of Macau
-
+Technion, Guangdong Technion, University of Macau, Berkeley
 
 
