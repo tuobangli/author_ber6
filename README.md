@@ -1,2 +1,3 @@
-Technion, Guangdong Technion, Berkeley, IoB, Macau,
+Technion, Guangdong Technion, IoB, Macau, Berkeley
+
 
