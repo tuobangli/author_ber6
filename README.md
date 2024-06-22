@@ -1,1 +1,1 @@
-email using berkeley email
+go to the KSMB
