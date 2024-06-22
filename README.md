@@ -1,1 +1,1 @@
-waiting for further confirmation to decide whether go to Korea
+ go to Korea next weekend
