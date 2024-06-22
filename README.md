@@ -1,1 +1,1 @@
-go to the KSMB on June 30
+waiting for further confirmation to decide whether go to Korea
