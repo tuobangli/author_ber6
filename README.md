@@ -1,1 +1,1 @@
-go to the KSMB
+go to the KSMB on June 30
