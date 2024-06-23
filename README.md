@@ -1,1 +1,1 @@
-book a meeting with the leaders of Guangdong Technion
+book a meeting with the dean 
