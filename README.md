@@ -1,1 +1,1 @@
-book a meeting with the ya,vc,dean,kyl, hc
+book a meeting with the ya,vc,dean,hc
