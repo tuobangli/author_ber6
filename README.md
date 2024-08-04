@@ -1,1 +1,1 @@
-go to waterloo, and then to Australia or Taiwan, and then to Singapore.
+I will ask you here when I can submit the papers (according to my current guess, nearly everyone in statistcis already know my papers, this is much more than what I originally expected)
