@@ -1,1 +1,1 @@
-all REDS papers simultanously published
+waiting for all REDS papers finished, and then simultanously published
