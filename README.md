@@ -1,1 +1,1 @@
-I will ask you here when I can submit the papers (according to my current guess, nearly everyone in statistcis already know my papers, this is much more than what I originally expected, I mean if such things with so much attention, then, if this paper is delayed for too long, it is not proper. In statistics, a typical review time is one year, two year is also possible, but rarely three years, now it is already two years one month).
+all REDS papers simultanously published
