@@ -1,1 +1,1 @@
-REDS:Central moments to the annual of statistics.
+REDS: Mean to the annual of statistics.
