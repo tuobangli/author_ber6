@@ -1,4 +1,4 @@
-Withdraw REDS: Mean to the annual of statistics.
+Submit REDS: Mean to PNAS
 
 
 
