@@ -1,4 +1,4 @@
-Submit REDS: Mean, REDS: Central Moments, REDS: Invariant Moments to PNAS
+Submit REDS: Mean to PNAS
 
 
 
