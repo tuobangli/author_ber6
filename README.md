@@ -1,4 +1,4 @@
-Submit REDS: Mean to PNAS
+Submit REDS: Central moment to PNAS
 
 
 
