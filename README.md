@@ -1,4 +1,4 @@
-Submit REDS: Central moment to PNAS
+Submit REDS: Invariant moment to PNAS
 
 
 
