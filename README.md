@@ -1,4 +1,4 @@
-Submit REDS: Invariant moment to PNAS
+Submit REDS: moment to PNAS
 
 
 
