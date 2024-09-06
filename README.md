@@ -1,4 +1,4 @@
-Submit Infer metabolic directions to PNAS
+Submit Infer metabolic directions to PNAS, after corrections.
 
 
 
