@@ -1,4 +1,4 @@
-Submit REDS: moment to PNAS
+Submit Infer metabolic directions to PNAS
 
 
 
